@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @Saturnn5
-- 👀 I’m interested in programming
+- Hi, I’m @Saturnn5 (Ethan)
+- I’m interested in programming (shocker!)
+- Great things WILL be here one day, keep your eyes peeled!
